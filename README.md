@@ -1,2 +1,2 @@
 # Nithish-Anumula.github-io
-Visit https://nithish-anumula.github.io/Nithish-Anumula.github-io/
+visit https://nithish-anumula.github.io/Business-portfolio/
